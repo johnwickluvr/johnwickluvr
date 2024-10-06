@@ -15,3 +15,5 @@ HE ノ IT ノ SHE
 ੭ I'm mentally ill so please keep that in mind when interacting w/ me (I won't list everything but im autistic so my speech might seem dry.)
                   <p align="center">
 ੭ I'M 18!!!! MINORS DONT BE WEIRD TOWARDS ME. please.
+<p align="center">
+੭ You can copy my ponies idc!! (if you need clear pictures jsut whisper me and ill help you out!)

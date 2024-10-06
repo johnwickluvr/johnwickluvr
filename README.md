@@ -12,10 +12,10 @@
     DNI PROSHIP & DSMP
      <p align="center">
 ✦ I'm mostly only online if one of my friends are. I don't really play this game much!! 
-        <p align="center"> w2i would be appreciated since I'm tabbed out a lot and i might miss anything u say sorryyy! C + H is cool unless i state otherwise! 
-         <p align="center"> My main interests are currently UTMV and PHIGHTING! i luv u guys pls int!!!
-          <p align="center"> I'm autistic so I'm VERY awkward and i can sometimes come across as either dry or too hyped! please keep this in mind while interacting w/ me
-        <p align="center"> FICTKIN of many!! im evil like that :3 
-           <p align="center"> I hide/block people who make me uncomfortable don't take it personally and make an alt to ask me what you did wrong. i did it for a reason and do not wish to interact w/ you.
+        <p align="center"> ✦ w2i would be appreciated since I'm tabbed out a lot and i might miss anything u say sorryyy! C + H is cool unless i state otherwise! 
+         <p align="center"> ✦ My main interests are currently UTMV and PHIGHTING! i luv u guys pls int!!!
+          <p align="center"> ✦ I'm autistic so I'm VERY awkward and i can sometimes come across as either dry or too hyped! please keep this in mind while interacting w/ me
+        <p align="center"> ✦ FICTKIN of many!! im evil like that :3 
+           <p align="center"> ✦ I hide/block people who make me uncomfortable don't take it personally and make an alt to ask me what you did wrong. i did it for a reason and do not wish to interact w/ you.
 
  

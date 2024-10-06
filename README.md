@@ -1,6 +1,6 @@
 ![blurp](https://64.media.tumblr.com/b649e9d17c9758af620c087ab6aff40b/ab8b3a171f830c43-11/s2048x3072/ac1695b70c6f5735dd95fc22a9fe5220af53609d.pnj)
 <p align="center">
-mimi or FELL . . .
+mimi or FELL . . . (or the character I'm using !!)
   <p align="center">
 HE ノ IT ノ SHE
 

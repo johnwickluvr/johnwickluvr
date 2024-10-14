@@ -11,6 +11,8 @@
   <p align="center">
     DNI PROSHIP & DSMP
      <p align="center">
+       ✦ i go non-verbal a lot...sorry if i stop replying
+       <p align="center">
 ✦ I'm mostly only online if one of my friends are. I don't really play this game much!! 
         <p align="center"> ✦ w2i would be appreciated since I'm tabbed out a lot and i might miss anything u say sorryyy! C + H is cool unless i state otherwise! 
          <p align="center"> ✦ My main interests are currently UTMV and PHIGHTING! i luv u guys pls int!!!

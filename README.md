@@ -1,13 +1,13 @@
-![blurp](https://64.media.tumblr.com/b649e9d17c9758af620c087ab6aff40b/ab8b3a171f830c43-11/s2048x3072/ac1695b70c6f5735dd95fc22a9fe5220af53609d.pnj)
+![blurp](https://64.media.tumblr.com/dc0a1a13f5c0c6a643c1e90263f62bfa/db3003639f40a3b6-b4/s2048x3072/7d5215895184740e39eca2ca08e7472bee08627f.pnj)
 <p align="center">
-———⟣ mimi or FELL . . . (or the character I'm using !!) ⟢———
+———⟣ mimi or daisuke . . . (or the character I'm using !!) ⟢———
   
   <p align="center">
 ———⟣ HE ✦ IT ✦ SHE ⟢———
      <p align="center">
-18!!! minors dont be weird pls
-
-![burpppp](https://64.media.tumblr.com/3737c233de4215d92174c16e549d4940/f2022a2f0b9b1ac3-37/s2048x3072/6b7095cfbe16bb9e5df190602ad5a91ef93a46e1.pnj)
+18!!! 
+       
+![burpppp](https://64.media.tumblr.com/9264fdf503ff9326958de32a4ae97076/84077746d488129a-6b/s2048x3072/49b576193115e3d8aa1942c612a9672cee0d82a6.pnj)
   <p align="center">
     DNI PROSHIP & DSMP
      

@@ -1,9 +1,9 @@
 ![blurp](https://64.media.tumblr.com/dc0a1a13f5c0c6a643c1e90263f62bfa/db3003639f40a3b6-b4/s2048x3072/7d5215895184740e39eca2ca08e7472bee08627f.pnj)
 <p align="center">
-———⟣ mimi or daisuke . . . (or the character I'm using !!) ⟢———
+———⟣ mimi or starscream . . . (or the character I'm using !!) ⟢———
   
   <p align="center">
-———⟣ HE ✦ IT ✦ SHE ⟢———
+———⟣ IT ✦ HE ✦ SHE ⟢———
      <p align="center">
 18!!! 
        
